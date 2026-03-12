@@ -56,7 +56,7 @@ darkshippers fuck off please
 <summary> ⎯⎯ㅤ ${\textsf{\color{#500716}DNI}}$ ⊹ ࣪ ˖ </summary>proships,darks, problematic yumes or any of problematic criteria, please leave me be.<br> </details> <details align="center">
 <img src="https://64.media.tumblr.com/41c3f65765c764c5ad2b1fc2116081ee/tumblr_inline_p7j0hwBmh11ri065t_250.gifv" alt="Study: Mario &amp; Luigi - Bowser&#39;s Inside Story – @pixeldigest on Tumblr"/>
 
-  <summary> ⎯⎯ㅤ ${\textsf{\color{#500716}int!}}$ㅤ⊹ ࣪ ˖ </summary> sonic, kolo, c+h skins , sonic skins of any type, sonic fandom, super mario fandom,jsab, etc , or anything i reconize, doubles please be cautious because i will be uncomfy.  ˗ˏˋ WHERE I AM IN PONYTOWN ༻ ‿̩͙‿
+  <summary> ⎯⎯ㅤ ${\textsf{\color{#500716}int!}}$ㅤ⊹ ࣪ ˖ </summary> mario, bowser, c+h skins , sonic skins of any type, sonic fandom, super mario fandom,jsab, etc , or anything i reconize, doubles please be cautious because i will be uncomfy.  ˗ˏˋ WHERE I AM IN PONYTOWN ༻ ‿̩͙‿
 
 ・upperdocks, bakery, library, spawn, mountains, or in that really cool blue cave because no people rarely comes there. sth area
 <br> </details> <p align="center"> <img src="https://neckdoll.zombie.jp/material/line/silver-jyuji/line-jyujika-b002.gif" height="40" width="240"/> <p align="center"> ${\textsf{\color{#500716}❝ᴘᴀʀᴀᴅᴏʟɪᴀ❞}}$

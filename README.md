@@ -13,7 +13,7 @@
 <p align="center">
 
 <p align="center">
-<img src="file:///home/chronos/u-19409b2af1be352ef7c6cff21c9f816cfb41fced/MyFiles/Downloads/aaa76e44f26db3851da3add220078f0c-removebg-preview_253x247.png"/><img width="253" height="247" alt="image" src="https://github.com/user-attachments/assets/cfe230bd-095c-42dc-b4a1-6f5c6ec91608" align="left" width="30%"> <p align="center"> ${\textsf{\color{#ff7bc2}❝𝐩𝐥𝐞𝐚𝐬𝐞 𝐠𝐢𝐫𝐥❞}}$ <br> <img src="https://neckdoll.zombie.jp/material/line/silver-jyuji/line-jyujika-b002.gif"height="40" width="240"/>
+<img src="file:///home/chronos/u-19409b2af1be352ef7c6cff21c9f816cfb41fced/MyFiles/Downloads/aaa76e44f26db3851da3add220078f0c-removebg-preview_253x247.png"/><img width="253" height="247" alt=<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/a5ce580b-6ccb-4e9e-b73f-c7964d63b75d" align="left" width="30%"> <p align="center"> ${\textsf{\color{#ff7bc2}❝𝐩𝐥𝐞𝐚𝐬𝐞 𝐠𝐢𝐫𝐥❞}}$ <br> <img src="https://neckdoll.zombie.jp/material/line/silver-jyuji/line-jyujika-b002.gif"height="40" width="240"/>
 <p align="center"> <details align="center">
   <img src="https://pixels.crd.co/assets/images/gallery25/00afa538.gif?v=29416114" alt="Untitled"/>
   <summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}ABOUT ME}}$ ⊹ ࣪ ˖ </summary>🍰 ͝ ͡ །࿐ 　 ̥̈ ༙༙ ˚　　𓏵𝘬𝘰𝘭𝘰 𝘺𝘶𝘮𝘦🍰༢ེུ༷ 　 ❌𝘯𝘰𝘯𝘴𝘩𝘢𝘳𝘪𝘯𝘨, 𝘣𝘶𝘵 𝘐 𝘥𝘰𝘯'𝘵 𝘣𝘭𝘰𝘤𝘬🍥　 ˚̣̣̣ ͡ ། 𓏼˚̣̣̣ 　𝘪 𝘣𝘭𝘰𝘤𝘬 𝘧𝘳𝘦𝘦𝘭𝘺<br> </details> <details align="center">
@@ -41,7 +41,8 @@ darkshippers fuck off please
 ・take in mind if I do friend you, I will hide behind you as a source of comfort, if you don't like it, please tell me in whispers so I respect your wishes, I wont get mad, seriously I actually do understand to some that I might be clingy. <br> </details> <p align="center"> <img src="https://neckdoll.zombie.jp/material/line/silver-jyuji/line-jyujika-b002.gif" height="40" width="240"/><p align="center"> ${\textsf{\color{#ff7bc2}❝𝐲𝐨𝐮 𝐡𝐨𝐥𝐝 𝐦𝐞 𝐧𝐨𝐰❞}}$
 
 <p align="center">
-<img src="https://camo.githubusercontent.com/9e66542ade589e36eadd76af221dcf35b9095fa4cd7d86c9c69f600d70a1f4a3/68747470733a2f2f66696c65732e636174626f782e6d6f652f6865647934692e706e67"/>
+<img src="https://github.com/user-attachments/assets/be9d3c54-a090-418d-b40f-8c7a33ade2c7"
+
 
 </p>
 
@@ -57,8 +58,9 @@ darkshippers fuck off please
 <br> </details> <p align="center"> <img src="https://neckdoll.zombie.jp/material/line/silver-jyuji/line-jyujika-b002.gif" height="40" width="240"/> <p align="center"> ${\textsf{\color{#ff7bc2}❝𝐈 𝐥𝐨𝐯𝐞 𝐲𝐨𝐮❞}}$
 
 
-<p align="center">
-<img src="https://camo.githubusercontent.com/9e66542ade589e36eadd76af221dcf35b9095fa4cd7d86c9c69f600d70a1f4a3/68747470733a2f2f66696c65732e636174626f782e6d6f652f6865647934692e706e67"/>
+<p align="center"
+<img src="https://github.com/user-attachments/assets/baca1db7-f027-4b1e-9a30-9606dac00bbc"
+
 </p>
 
 ![GitHub Views](https://komarev.com/ghpvc/?username=natterstefan&color=FFB8C1)

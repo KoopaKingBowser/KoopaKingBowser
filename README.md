@@ -67,16 +67,16 @@ darkshippers fuck off please
 
 </p>
 
-![GitHub Views](https://komarev.com/ghpvc/?username=natterstefan&color=FFB8C1)
+![GitHub Views](https://komarev.com/ghpvc/?username=natterstefan&color=500716)
 
 [@ilovefleetway](https://github.com/ILoveFleetway)
 
-<img src="https://media.discordapp.net/attachments/1438336164992909475/1480801313204736061/ezgif-7479074c09af5eaf.gif?ex=69b0ff31&amp;is=69afadb1&amp;hm=d322c68ac358d999ec19702db4a48a7eefb821383582d15f7d7b9adcfe16cd3e&amp;=&amp;width=184&amp;height=282" alt="Image"/>[『🍰』︶︶ 𝘳𝘦𝘯𝘵𝘳𝘺](https://rentry.co/macarooniekolowife)
- 
-<p align="center"> <img src="https://media.discordapp.net/attachments/1438336164992909475/1479350900978876518/b43b2181-0404-4325-90d7-525ac5370f18.gif?ex=69abb863&amp;is=69aa66e3&amp;hm=9b8ea613759431a86fdad6cef7d104be8d0042cb0710c585ee960da9d2840f63&amp;=&amp;width=101&amp;height=101" alt="Image" height="240" width="240"><p align="center"> 
+<img src="https://media.tenor.com/OmEzUnxv7MsAAAAj/bowser-dance.gif" alt="a cartoon character with a red and green hat and spikes"/>
 
-<p align="center"><img src="https://i.postimg.cc/bwDksJnc/gal.gif" alt="gal"/> <img src="https://i.postimg.cc/h4LCtCBb/sweetness.gif" alt="sweetness"/>  <img src="https://i.postimg.cc/N0C3bdMr/meow.gif" alt="meow"/><img src="https://i.postimg.cc/C5k9hY4j/candy.gif" alt="candy" <img src="https://i.postimg.cc/1Xk8CjtH/lolita.gif" alt="lolita"/><img src="https://i.postimg.cc/MTXXWSf5/nice.gif" alt="nice"/><img src="https://i.postimg.cc/JzcsxKWN/sweet.webp" alt="sweet"/> 
-<img src="https://i.postimg.cc/P5kL190f/doll.gif" alt="doll"/> <p align="center">
+ 
+<img src="https://media.discordapp.net/attachments/1438336164992909475/1481749037190348831/f97cf387-67c6-4e5a-a0da-a37674982f33.gif?ex=69b471d4&amp;is=69b32054&amp;hm=bcc0247c2ef1ceaf86d4db5b74f8803fd70590b2f9cdc32871996f9ce83a99ee&amp;=&amp;width=90&amp;height=90" alt="Image"/>
+
+
 
 
 

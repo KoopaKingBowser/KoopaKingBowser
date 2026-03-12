@@ -9,7 +9,7 @@
 <img src="https://i.imgur.com/tYZV2sR.png"/>
 
 <p align="center">
-<img src="https://camo.githubusercontent.com/9e66542ade589e36eadd76af221dcf35b9095fa4cd7d86c9c69f600d70a1f4a3/68747470733a2f2f66696c65732e636174626f782e6d6f652f6865647934692e706e67"/>
+<img src="https://github.com/user-attachments/assets/4dbd6198-b420-4c4b-ac3f-822eb2fb18da"/>
 <p align="center">
 
 <p align="center">
@@ -47,7 +47,7 @@ darkshippers fuck off please
 </p>
 
 <br>
-<img width="2048" height="388" alt="image" src="https://github.com/user-attachments/assets/c67bc8c4-7eee-4b8a-b875-7ff86616175d"<img width="208" height="192" alt="image" src="https://github.com/user-attachments/assets/075b72a0-c760-4ef0-ae82-547a03ab3a87"  align="right" width="30%"> <p align="center"> ${\textsf{\color{#ff7bc2}❝𝐈 𝐧𝐞𝐞𝐝 𝐲𝐨𝐮❞}}$ <br> <img src="https://neckdoll.zombie.jp/material/line/silver-jyuji/line-jyujika-b002.gif" height="40" width="240"/>
+ ${\textsf{\color{#ff7bc2}❝𝐈 𝐧𝐞𝐞𝐝 𝐲𝐨𝐮❞}}$ <br> <img src="https://neckdoll.zombie.jp/material/line/silver-jyuji/line-jyujika-b002.gif" height="40" width="240"/>
 <p align="center"> <details align="center">
   <img src="https://pixels.crd.co/assets/images/gallery98/e49f76ed.gif?v=29416114" alt="Untitled"/>
 <summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}DNI}}$ ⊹ ࣪ ˖ </summary>proships,darks, problematic yumes or any of problematic criteria, please leave me be.<br> </details> <details align="center">

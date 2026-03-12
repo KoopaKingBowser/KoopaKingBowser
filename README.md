@@ -15,10 +15,12 @@
 <p align="center">
 <img src="file:///home/chronos/u-19409b2af1be352ef7c6cff21c9f816cfb41fced/MyFiles/Downloads/aaa76e44f26db3851da3add220078f0c-removebg-preview_253x247.png"/><img width="253" height="247" alt=<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/a5ce580b-6ccb-4e9e-b73f-c7964d63b75d" align="left" width="30%"> <p align="center"> ${\textsf{\color{#500716}❝ɪᴛ ᴀʟʟ ᴇɴᴅꜱ ❞}}$ <br> <img src="https://neckdoll.zombie.jp/material/line/silver-jyuji/line-jyujika-b002.gif"height="40" width="240"/>
 <p align="center"> <details align="center">
-  <img src="https://pixels.crd.co/assets/images/gallery25/00afa538.gif?v=29416114" alt="Untitled"/>
-  <summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}ABOUT ME}}$ ⊹ ࣪ ˖ </summary>🍰 ͝ ͡ །࿐ 　 ̥̈ ༙༙ ˚　　𓏵𝘬𝘰𝘭𝘰 𝘺𝘶𝘮𝘦🍰༢ེུ༷ 　 ❌𝘯𝘰𝘯𝘴𝘩𝘢𝘳𝘪𝘯𝘨, 𝘣𝘶𝘵 𝘐 𝘥𝘰𝘯'𝘵 𝘣𝘭𝘰𝘤𝘬🍥　 ˚̣̣̣ ͡ ། 𓏼˚̣̣̣ 　𝘪 𝘣𝘭𝘰𝘤𝘬 𝘧𝘳𝘦𝘦𝘭𝘺<br> </details> <details align="center">
-  <img src="https://pixels.crd.co/assets/images/gallery25/3b662477.gif?v=29416114" alt="Untitled"/>
-  <summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}MORE}}$ㅤ⊹ ࣪ ˖ </summary> ive been with kolo ever since td came out, i am the number one kolo fan :3! i love him so much hes so silllyyyyuhhhh!ˏˋ OK!! / Please do ༻ ‿̩͙‿
+  <img src="https://s5.ezgif.com/tmp/ezgif-567893edac24c66f.webp" alt="tumblr_mqtfrs9Xbu1rrftcdo1_500 (1).webp [resize output image]"/>
+
+  <summary> ⎯⎯ㅤ ${\textsf{\color{#500716}ABOUT ME}}$ ⊹ ࣪ ˖ </summary> bowser/ crimson, n1 bowsa fan :3 <br> </details> <details align="center">
+<img src="https://s5.ezgif.com/tmp/ezgif-567893edac24c66f.webp" alt="tumblr_mqtfrs9Xbu1rrftcdo1_500 (1).webp [resize output image]"/>
+
+  <summary> ⎯⎯ㅤ ${\textsf{\color{#500716}MORE}}$ㅤ⊹ ࣪ ˖ </summary> ive been with big B ever since i was 9 came out, i am the number one bowser fan :3! i love him so much hes so silllyyyyuhhhh!ˏˋ OK!! / Please do ༻ ‿̩͙‿
 
 ・CUDDLE WITH ME I ALLOW ALLL .
 
@@ -49,10 +51,12 @@ darkshippers fuck off please
 <br>
  ${\textsf{\color{#500716}❝ᴍʏ ꜱᴡᴇᴇᴛ❞}}$ <br> <img src="https://neckdoll.zombie.jp/material/line/silver-jyuji/line-jyujika-b002.gif" height="40" width="240"/>
 <p align="center"> <details align="center">
-  <img src="https://pixels.crd.co/assets/images/gallery98/e49f76ed.gif?v=29416114" alt="Untitled"/>
-<summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}DNI}}$ ⊹ ࣪ ˖ </summary>proships,darks, problematic yumes or any of problematic criteria, please leave me be.<br> </details> <details align="center">
-<img src="https://pixels.crd.co/assets/images/gallery75/96512abe.gif?v=29416114" alt="Untitled"/>
-  <summary> ⎯⎯ㅤ ${\textsf{\color{#ff7bc2}int!}}$ㅤ⊹ ࣪ ˖ </summary> sonic, kolo, c+h skins , sonic skins of any type, sonic fandom, super mario fandom,jsab, etc , or anything i reconize, doubles please be cautious because i will be uncomfy.  ˗ˏˋ WHERE I AM IN PONYTOWN ༻ ‿̩͙‿
+<img src="https://64.media.tumblr.com/41c3f65765c764c5ad2b1fc2116081ee/tumblr_inline_p7j0hwBmh11ri065t_250.gifv" alt="Study: Mario &amp; Luigi - Bowser&#39;s Inside Story – @pixeldigest on Tumblr"/>
+
+<summary> ⎯⎯ㅤ ${\textsf{\color{#500716}DNI}}$ ⊹ ࣪ ˖ </summary>proships,darks, problematic yumes or any of problematic criteria, please leave me be.<br> </details> <details align="center">
+<img src="https://64.media.tumblr.com/41c3f65765c764c5ad2b1fc2116081ee/tumblr_inline_p7j0hwBmh11ri065t_250.gifv" alt="Study: Mario &amp; Luigi - Bowser&#39;s Inside Story – @pixeldigest on Tumblr"/>
+
+  <summary> ⎯⎯ㅤ ${\textsf{\color{#500716}int!}}$ㅤ⊹ ࣪ ˖ </summary> sonic, kolo, c+h skins , sonic skins of any type, sonic fandom, super mario fandom,jsab, etc , or anything i reconize, doubles please be cautious because i will be uncomfy.  ˗ˏˋ WHERE I AM IN PONYTOWN ༻ ‿̩͙‿
 
 ・upperdocks, bakery, library, spawn, mountains, or in that really cool blue cave because no people rarely comes there. sth area
 <br> </details> <p align="center"> <img src="https://neckdoll.zombie.jp/material/line/silver-jyuji/line-jyujika-b002.gif" height="40" width="240"/> <p align="center"> ${\textsf{\color{#500716}❝ᴘᴀʀᴀᴅᴏʟɪᴀ❞}}$

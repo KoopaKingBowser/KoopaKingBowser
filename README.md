@@ -20,7 +20,7 @@
   <summary> ⎯⎯ㅤ ${\textsf{\color{#500716}ABOUT ME}}$ ⊹ ࣪ ˖ </summary> bowser/ crimson, n1 bowsa fan :3 <br> </details> <details align="center">
 <img src="https://s5.ezgif.com/tmp/ezgif-567893edac24c66f.webp" alt="tumblr_mqtfrs9Xbu1rrftcdo1_500 (1).webp [resize output image]"/>
 
-  <summary> ⎯⎯ㅤ ${\textsf{\color{#500716}MORE}}$ㅤ⊹ ࣪ ˖ </summary> ive been with big B ever since i was 9 came out, i am the number one bowser fan :3! i love him so much hes so silllyyyyuhhhh!ˏˋ OK!! / Please do ༻ ‿̩͙‿
+  <summary> ⎯⎯ㅤ ${\textsf{\color{#500716}MORE}}$ㅤ⊹ ࣪ ˖ </summary> ive been with big B ever since i was 9, i am the number one bowser fan :3! i love him so much hes so silllyyyyuhhhh!ˏˋ OK!! / Please do ༻ ‿̩͙‿
 
 ・CUDDLE WITH ME I ALLOW ALLL .
 
